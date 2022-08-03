@@ -1,1 +1,1 @@
-# Web Store For Video Games, Gift Carts, Google Play Cards, etc
+# Web Store For Video Games, Gift Cards, Google Play Cards, etc
